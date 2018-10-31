@@ -67,6 +67,9 @@ Hello from the TANZANIA!
 a hello directly from TANZANIA 🇹🇿
 =======
 
+Namaste from India!!
+=======
+
 habari kutoka TANZANIA 🇹🇿 
 =======
 
